@@ -6,8 +6,11 @@
 * 这里没有创意的限制，每个梦想都值得被实现
 
 我们将一起前进，打破一切束缚：
+
 🔧 当工具跟不上想象力时，我们会一起发明新的魔法
+
 🎨 当技术达不到愿景时，我们会一起创造新的可能
+
 🏰 当梦想乐园最终落成时，你的创意将闪耀在梦想星空
 
 你的每一个奇思妙想，都将成为他人生命中的魔法时刻！让我们一起，把想象力变成最动人的现实！
@@ -22,8 +25,11 @@ Here, we are creating an unprecedented dream DIY world:
 * There are no limits to creativity here; every dream is worth being realized.
   
 We will move forward together, breaking all constraints:
+
 🔧 When tools can't keep up with imagination, we will invent new magic together.
+
 🎨 When technology falls short of the vision, we will create new possibilities together.
+
 🏰 When the dreamland is finally completed, your creativity will shine in the dreamy starry sky. 
 
 Every one of your ingenious ideas will become a magical moment in someone else's life! Let's turn imagination into the most touching reality together!
