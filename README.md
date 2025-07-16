@@ -15,7 +15,7 @@
 
 你的每一个奇思妙想，都将成为他人生命中的魔法时刻！让我们一起，把想象力变成最动人的现实！
 
-或许我们不能改变世界， 但我们能够改变世界的一个角落
+也许我们不能改变整个世界，但我们可以在这里创造一个新的宇宙。
 
 # Welcome to Welcome to OpenDream! A dreamland woven by dreamers and doers alike. 
 
