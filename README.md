@@ -1,4 +1,4 @@
-# 欢迎来到OpenDream！一个由梦想家和实干家共同编织的梦幻空间
+# 欢迎来到OpenDream！一个由梦想家和DIY爱好者共同编织的梦幻空间
 
 在这里，我们正在打造一个前所未有的梦幻DIY世界：
 * 这里没有预设的边界，每个角落都闪耀着创造的光芒
@@ -17,7 +17,7 @@
 
 也许我们不能改变整个世界，但我们可以在这里创造一个新的宇宙。
 
-# Welcome to Welcome to OpenDream! A dreamland woven by dreamers and doers alike. 
+# Welcome to OpenDream! A dreamy space woven together by dreamers and DIY enthusiasts
 
 Here, we are creating an unprecedented dream DIY world:
 * There are no preset boundaries here; every corner shines with the light of creation.
